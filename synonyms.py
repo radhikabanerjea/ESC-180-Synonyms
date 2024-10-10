@@ -1,4 +1,4 @@
-# Maria Salonga & Radhika Banerjea
+# Radhika Banerjea
 # Monday, December 5, 2022
 
 
