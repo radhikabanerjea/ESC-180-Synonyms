@@ -1,1 +1,1 @@
-# ESC-180-Synonyms
+# Synonyms
